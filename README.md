@@ -19,8 +19,7 @@
 
   ⋆˙⟡ ULTRAKILL, The Binding Of Issac, Minesweeper Plus, Regretivator, GRACE, Pizza Tower, Hotline Miami, Clean Crew, Portal 1 and 2, Don't Starve Together, Dandys World, Five Nights At Freddys, Happy Wheels, Creatures Of Sonaria, Dragon Adventures, ENA; DREAM BBQ, and TONS more. Feel free to ask!
 
-
-I like to draw. I'm a self-taught artist.
+(https://i.pinimg.com/1200x/54/01/88/54018835313531c23dd01080002d39fc.jpg)
 
 
 
