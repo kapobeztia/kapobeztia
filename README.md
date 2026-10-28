@@ -8,9 +8,9 @@
 ☆ I'm taken by my wonderful partner!
 
 ᶻ 𝗓 𐰁 Just an eepy guy....
-   ▶︎ I have ADHD, Major anxiety, and potential autism! Please be patient with me!
-     ▶︎ Do NOT flirt with me. I will block you. I am TAKEN!!!
-       ▶︎ Please do not engage in sexual conversation with me! It will trigger me and also.. that's... weird!
+▶︎ I have ADHD, Major anxiety, and potential autism! Please be patient with me!
+▶︎ Do NOT flirt with me. I will block you. I am TAKEN!!!
+▶︎ Please do not engage in sexual conversation with me! It will trigger me and also.. that's... weird!
 
 ### I LIKE MANY GAMES AND SUCH! THESE INCLUDE THE FOLLOWING;
 
