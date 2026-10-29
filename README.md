@@ -5,7 +5,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ## I'm Transmasc, Pansexual, Ambiamorous. I am also Hypersexual, so please be aware of that!
 
-☆ I'm taken by my wonderful partner!
+☆ I'm taken by my wonderful boyfriend!
 
 ᶻ 𝗓 𐰁 Just an eepy guy....
 
