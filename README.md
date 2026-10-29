@@ -21,6 +21,10 @@
 
 ![I like to draw! I am a self taught artist and a really shitty animator.](https://i.pinimg.com/1200x/54/01/88/54018835313531c23dd01080002d39fc.jpg)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kzjpey63dqnbayvhgxdokxilwy&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kzjpey63dqnbayvhgxdokxilwy&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 
