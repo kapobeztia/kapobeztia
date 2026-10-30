@@ -32,15 +32,31 @@ $\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO
   <details>
   <summary>Hey you! Click on me! Yeah, you!</summary>
 
-   -- ` Scag - Regretivator
+    Scag & Prototype | Regretivator
    
-   -- ` Zodiac - Mewgenics
-   
-   -- ` The Minstrel Bloxxer - Dream Game
+    Zodiac | Mewgenics
+  
+    The Minstrel Bloxxer | Dream Game
 
-   -- ` Space Core & GLaDOS - Portal
+    Space Core & GLaDOS | Portal
 
-   -- ` Mirage, V2, and the Guttertank - ULTRAKILL
+    Mirage, V2, and the Guttertank | ULTRAKILL
+
+    Blaster, Ranger, and Mulchpods | Clean Crew
+
+    Withered Bonnie | Five Nights At Freddys
+
+    Goob, Rodger, Dyle, Finn, and Soulvester | Dandys World
+
+    The Noise | Pizza Tower
+
+    Alex & Ash | Hotline Miami 
+
+    Webber | Don't Starve Together
+
+    Kane & Meanie Ena | ENA; DREAM BBQ
+
+    Scythe | PHIGHTING!
    
   </details>
 
