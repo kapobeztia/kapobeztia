@@ -27,6 +27,23 @@ $\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO
 
   ⋆˙⟡ ULTRAKILL, The Binding Of Issac, Minesweeper Plus, Regretivator, GRACE, Pizza Tower, Hotline Miami, Clean Crew, Portal 1 and 2, Don't Starve Together, Dandys World, Five Nights At Freddys, Happy Wheels, Creatures Of Sonaria, Dragon Adventures, ENA; DREAM BBQ, and TONS more. Feel free to ask!
 
+  My favorite characters in some of this media include;
+
+  <details>
+  <summary>Hey you! Click on me! Yeah, you!</summary>
+
+   -- ` Scag - Regretivator
+   
+   -- ` Zodiac - Mewgenics
+   
+   -- ` The Minstrel Bloxxer - Dream Game
+
+   -- ` Space Core & GLaDOS - Portal
+
+   -- ` Mirage, V2, and the Guttertank - ULTRAKILL
+   
+  </details>
+
 ## MUSIC I LIKE!
 
 ▶︎ Alice In Chains, Pearl Jam, Metallica, Game OSTS, Soundgarden, Radiohead, Deftones, Primus, and a lot alt rock! I also like music like Lapfox.
