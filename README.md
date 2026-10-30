@@ -2,7 +2,7 @@
 
 ![Profile views](https://views.igorkowalczyk.dev/api/badge/kapobeztia?label=vessels&labelColor=BB3F3F&color=F2F0EF&style=classic)
 
-$\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO,NOW}$ $\text{\color{#BB3F3F}ON}$ $\text{\color{#BB3F3F}THE}$ $\text{\color{#BB3F3F}OFFENSE!}$ 
+$\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO NOW}$ $\text{\color{#BB3F3F}ON}$ $\text{\color{#BB3F3F}THE}$ $\text{\color{#BB3F3F}OFFENSE!}$ 
  
  ⋆˚꩜｡ּ Howdy! I'm Kapobeztia.
 
