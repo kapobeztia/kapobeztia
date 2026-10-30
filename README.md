@@ -37,4 +37,5 @@ $\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO
   </a>
 </p>
 
+<img width="400" alt="Image" src="https://static.wikia.nocookie.net/offgame/images/e/ed/Dedan.png/revision/latest/scale-to-width/360?cb=20130413231646" />
 
