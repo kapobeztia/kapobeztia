@@ -3,6 +3,8 @@
 
  
  .ᐟ I'm an anxious mess, so please don't mind me. I will be quiet at times! .ᐟ
+
+ <div align ="center">
 ![I'm an anxious mess, so please don't mind me. I will be quiet at times.](https://i.pinimg.com/736x/be/7d/2b/be7d2bf7f3a3e5bcd22d325083609bc6.jpg)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
