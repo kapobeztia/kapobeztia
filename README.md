@@ -1,6 +1,6 @@
 <div align ="center">
 
-![Profile views](https://views.igorkowalczyk.dev/api/badge/kapobeztia?label=vessels&labelColor=BB3F3F&colorstyle=classic)
+![Profile views](https://views.igorkowalczyk.dev/api/badge/kapobeztia?label=vessels&labelColor=BB3F3F&color=F2F0EF&style=classic)
  
  ⋆˚꩜｡ּ Howdy! I'm Kapobeztia.
 
