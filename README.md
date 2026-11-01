@@ -57,6 +57,16 @@ $\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO
     Kane & Meanie Ena | ENA; DREAM BBQ
 
     Scythe | PHIGHTING!
+
+    Dedan & Zacharie | OFF
+
+    John Reprieve, Doombringer, Rig, and KooKoo | GRACE
+
+    The Captain | Minesweeper Plus
+
+    ETHAN, Crowguy, Eyeless, and Kolossos | Belowlands
+
+    Yourmind, Sorrow, and No_One | Wonderland.Jar
    
   </details>
 
