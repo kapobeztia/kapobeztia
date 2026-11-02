@@ -67,6 +67,14 @@ $\text{\color{#BB3F3F}HERE}$ $\text{\color{#BB3F3F}WE}$ $\text{\color{#BB3F3F}GO
     ETHAN, Crowguy, Eyeless, and Kolossos | Belowlands
 
     Yourmind, Sorrow, and No_One | Wonderland.Jar
+
+    Honcho, Ambush, Dread, A-90, and Glitch | DOORS
+
+    Circuit, Curved, NULL, and The Broken End | The Broken Script
+
+    Virus, Sign, Gaze, and Hand | Zenith Tower
+
+    Scrapmaw, Cadence, Bell, and Springer | Nullscape
    
   </details>
 
